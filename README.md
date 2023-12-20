@@ -9,8 +9,11 @@
 
 - Contact me Directly here For Quickest Response.
   Phone (385)787-9897
+  
   Email DJMantaRay
+  
   Instagram @DJMantaRay
+
   
   Instagram
 - https://www.instagram.com/djmantaray/
